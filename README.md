@@ -31,11 +31,16 @@ any ordinary chance to pay up to
 all the preachers who knew all
 before you could put in dime
 to know what's saught after
+
 now you tell me does the metal
 in my head do nothing good
 to uphold the whispers i've been
 hearing all around me
 their messages still astound them
+metabrutal treatment on synapses too fried
+to cool down and give open
+maybe should have given more dime
+to make them frozen
 
 ```
 
