@@ -14,7 +14,6 @@ Hitech Crime Single 'Mindchip'
 ## Lyrics
 
 ```
-
 "most states of consciousness are insane"
 
 We are made of people who built & destroyed us. Jump fearlessly into the abyss every time - 
