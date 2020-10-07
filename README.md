@@ -16,8 +16,11 @@ Hitech Crime Single 'Mindchip'
 ```
 "most states of consciousness are insane"
 
-We are made of people who built & destroyed us. Jump fearlessly into the abyss every time - 
+We are made of people who built & destroyed us. 
+
+Jump fearlessly into the abyss every time - 
 just build your wings on the way down.
+
 Arm yourself with the appropriate tools to conquer the world.
 
 Creatures of the hollow night, 
