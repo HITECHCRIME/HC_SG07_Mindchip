@@ -27,6 +27,8 @@ Creatures of the hollow night,
 
 filling their void, running towards the light.
 
+
+
 mindchips crawling in your memories
 their state subtle undefined 
 such melodies are out of place without rhymes
