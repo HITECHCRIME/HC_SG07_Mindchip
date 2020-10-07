@@ -25,22 +25,22 @@ Creatures of the hollow night,
 filling their void, running towards the light.
 
 mindchips crawling in your memories
-their state subtle undefined such
-melodies without rhymes so boggling
-any ordinary chance to pay up to
-all the preachers who knew all
+their state subtle undefined 
+such melodies are out of place without rhymes
+so boggling with the lack of any ordinary chance to pay up to
+all the preachers knowing all
 before you could put in dime
-to know what's saught after
-
+to know what's been saught after
 now you tell me does the metal
-in my head do nothing good
+in my head do nothing good for my soul
 to uphold the whispers i've been
 hearing all around me
 their messages still astound them
 metabrutal treatment on synapses too fried
 to cool down and give open
-maybe should have given more dime
+maybe should have given them more dime
 to make them frozen
+my place so cozy
 
 ```
 
