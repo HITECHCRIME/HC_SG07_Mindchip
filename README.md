@@ -23,9 +23,7 @@ just build your wings on the way down."
 
 "Arm yourself with the appropriate tools to conquer the world."
 
-Creatures of the hollow night, 
-
-filling their void, running towards the light.
+"Creatures of the hollow night, filling their void, running towards the light."
 
 mindchips crawling in your memories their state 
 subtle undefined such melodies are out of place 
