@@ -29,9 +29,9 @@ filling their void, running towards the light.
 
 
 
-mindchips crawling in your memories
-their state subtle undefined 
-such melodies are out of place without rhymes
+mindchips crawling in your memories their state 
+subtle undefined such melodies are out of place 
+without rhymes
 so boggling with the lack of any ordinary chance to pay up to
 all the preachers knowing all
 before you could put in dime
